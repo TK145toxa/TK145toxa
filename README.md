@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TK145toxa
+- 👀 I’m interested in football.
+- 🌱 I’m currently learning to engenier.
+- 💞️ I’m looking to collaborate on convesation.
+- 📫 How to reach me on a car.
+- 😄 Pronouns: - .
+- ⚡ Fun fact: run fast.
